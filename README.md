@@ -1,2 +1,2 @@
 # any moment
-- socials
+- idek
